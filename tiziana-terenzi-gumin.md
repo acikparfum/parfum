@@ -50,3 +50,5 @@ Misk, huş ağacı ve ananas hissediliyor. Ananas, misk, yasemin, sandal ağacı
 İlk denemede narenciye ağırlıklıydı ve çok da etkilenmedim. Ama ikinci denemede ananas ve odunsu notalar mükemmel bir şekilde öne çıktı. Narenciye ve odunu bu kadar dengeli harmanlayan başka bir koku zor bulunur. Benim için vazgeçilmezlerden oldu. Terenzi'nin en iyisi diyebilirim.
 
 İtalyan markasından bir başka başarılı haute parfumerie örneği. Denemek için sabırsızlanıyorum.
+
+Daha detaylı bilgiler için https://parfum.gen.tr
